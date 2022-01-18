@@ -1,6 +1,6 @@
 
  👋 Hi, I’m @Ms-Chanandler-Bong, A Group of Atoms with some consciousness figuring out the "THING" And thoroughly enjoying the Process. 😊
-- 👀 I’m interested in Everything from writing reading coding(*just I don't know how to code Yet!) Playing Music especially Physics and Astronomy. 
+- 👀 I’m interested in Everything from writing reading coding(*just I don't know how to code Yet!) Playing Music especially Learning P, A, L, E, G and many more..... 
 - 🌱 I’m currently learning-A lot of Intresting things and discovering Myself by challenging myself and pushing the limits. 
 - 💞️ I’m looking to collaborate on anything Creative/Intresting/Anyway I could help. 
 - 📫 How to reach me ...Well Probably try ANYWHERE DOOR and there Iam. 
